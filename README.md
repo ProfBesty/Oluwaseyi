@@ -1,5 +1,6 @@
 # Oluwaseyi
-![My picture](https://github.com/ProfBesty/Oluwaseyi/assets/147350441/3c52118f-71c2-442f-95c4-00a562128055)
+![My picture]![Seyi pic](https://github.com/ProfBesty/Oluwaseyi/assets/147350441/8001ee18-10b3-4864-ad3d-74c7db98c27a)
+
 
 🥳 Here, you find some interesting things about me.
 There's a lot to be done, so be prepared
